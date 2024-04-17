@@ -2,7 +2,7 @@
 
 
 - 🔭 Procurando um estágio para o meu desenvolvimento.
-- 🌱 Estudando Analise e Desenvolvimento de Sistemas - 4 Termo.
+- 🌱 Estudando Analise e Desenvolvimento de Sistemas - 5 Termo.
 - 📫 Contate-me no email: anapaula.freire001@gmail.com.
 - 😄 Pronouns: Ela/Dela.
 
